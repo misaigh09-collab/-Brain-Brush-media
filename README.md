@@ -37,4 +37,6 @@ Contributing
 
 
 Contributions are welcome. Please submit a pull request or open an issue for any suggestions, updates, or new asset additions.
-
+Contact for more information 
++256 750513479 +256 762728088
+Email: misaigh09@gmail.com
